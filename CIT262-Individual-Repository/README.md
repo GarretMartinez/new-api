@@ -1,0 +1,1 @@
+Hello everyone my name is Garret Martinez and I'm from Yakima Washington. This time of year I enjoy rock climbing, disc golf, and pickleball. This is my last semester at BYUI before I go to Oregon for work at AWS as a datacenter operations technician. I have a family of 4 and am the youngest of 2 sons.
