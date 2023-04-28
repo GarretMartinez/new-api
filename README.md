@@ -1,1 +1,0 @@
-Garret Martinez - CIT Major at BYUI
